@@ -147,7 +147,7 @@ Feel free to reach out for collaborations, job opportunities, or just to discuss
 
 ## 📄 Resume
 
-[📥 Download My Resume](link-to-your-resume.pdf)
+[📥 Download My Resume](drive.google.com/file/d/1Z8tuI6d4kQxZDoEGOA0lvGiLl267YgNf/view?usp=sharing)
 
 ---
 
